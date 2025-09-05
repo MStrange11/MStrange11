@@ -2,8 +2,8 @@
 MStrange11<br>
 
 
+![wheel2](https://github.com/user-attachments/assets/6eed3e2e-bd87-4155-b708-2b29687f7ebb)
 
-https://github.com/user-attachments/assets/d9718480-d024-4ba0-bb60-ed3d817a86ea
 
 
 
